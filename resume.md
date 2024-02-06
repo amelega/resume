@@ -14,5 +14,5 @@
 ## Instgram Link:
 https://www.instagram.com/annam268/
 
-![self image]('/c/Users/Anna1/Desktop/picture of self .JPG')
+![self image](https://en.wikipedia.org/wiki/Colorado_School_of_Mines#/media/File:Colorado_School_of_Mines_seal.svg)
 
