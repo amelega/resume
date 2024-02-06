@@ -1,9 +1,12 @@
-# anna melega
+# Anna Melega
 - amelega@mines.edu
-- Colorado School of Mines 
-- Geophysics Department
 - Golden, CO
 
 # Education
- Holland Hall High School (2022)
- Colorado School of Mines (2026)
+## Colorado School of Mines (2026)
+**Geophysics Department**
+
+https://www.instagram.com/annam268/
+
+https://www.instagram.com/p/CqWSChovTy8PlXPfk_-Knam3rzfWp_H864QEXk0/?img_index=6
+
