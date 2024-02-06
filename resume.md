@@ -14,5 +14,5 @@
 ## Instgram Link:
 https://www.instagram.com/annam268/
 
-![self image](https://en.wikipedia.org/wiki/Colorado_School_of_Mines#/media/File:Colorado_School_of_Mines_seal.svg)
+![self image](https://www.mines.edu/peer-education/wp-content/uploads/sites/335/2023/08/Anna-Melega.jpeg)
 
